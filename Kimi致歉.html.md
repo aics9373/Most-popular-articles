@@ -23,6 +23,25 @@ Kimi K3.1 Pro把开源模型见「先」思齐的势头，又给续上了。
 
 Artificial Analysis将其智能指数排在了全球第四，还给出判断：一旦权重发布，K3.1 Pro将登顶开放权重模型榜首，顶级开源模型与闭源模型的差距将从12分降至3分。
 
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
 
 
 ▲在Artificial Analysis榜单上，K3.1 Pro智能指数在全球大模型中排第4。
@@ -34,6 +53,25 @@ Artificial Analysis将其智能指数排在了全球第四，还给出判断：�
 01 /
 
 要知道，过去2个多月，是国模的暗淡期。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
 
 大洋彼岸，分外热闹：9月份，OpenAI 先后发布了GPT-6 Astra和GPT-6.1 Sol，A社捧出了Claude Opus 5.5，次月，就连此前被认为掉队了的谷歌，都凭着Gemini 4 Argon重上牌桌……
 
@@ -42,6 +80,24 @@ Artificial Analysis将其智能指数排在了全球第四，还给出判断：�
 国模这边，则俨然与之形成了鲜明对照：自Kimi K3引爆全球科技圈后，国模就有些沉寂。模型厂商推出新模型的动作有是有，但激起的声量几乎可以忽略不计。
 
 要而言之：人们盼「牛来」，可牛未来。
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
 
 
 
@@ -52,6 +108,25 @@ Artificial Analysis将其智能指数排在了全球第四，还给出判断：�
 不怕沉寂，就怕对比。伴随强烈反差而来的，是「蒸馏指控」与「能力怀疑」的甚嚣尘上。
 
 「蒸馏」向来是Anthropic们站在道德制高点上扔向国模的飞镖，这两个月尤甚。从NSA+CISA+FBI三大机构出手，到Anthropic又双叒叕打小报告，再到OpenAI首次公开发布反蒸馏行动报告，都来得极具针对性。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+
 
 而国模的沉寂发生在Anthropic们强化反蒸馏防御机制后，很容易被视作「变相坐实」。
 
@@ -62,6 +137,25 @@ Artificial Analysis将其智能指数排在了全球第四，还给出判断：�
 犹记得，K3刚问世时，我写了篇《取次硅谷懒回顾，半缘DeepSeek半缘Kimi》。可不得不说，近3个月的情况，让我生出了「不会被打脸了吧」的担忧。
 
 在此背景下，K3.1 Pro的出现，来得正是时候。它无形中释放了信号：越过灰暗时刻，China is back。
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+
 
 02 /
 
@@ -78,6 +172,24 @@ Artificial Analysis将其智能指数排在了全球第四，还给出判断：�
 这里没有说Pro版跟Flash版有好坏之分的意思，但从性能维度看，二者确有强弱之别：一般来说，Pro对应的是「能力上限优先」路线；Flash对应的是「效率/成本优先」路线。
 
 在其他厂商纷纷推出Flash版的情况下，Kimi依旧用Pro版去摸上限，这不免又让人想Cue起梁静茹老师。
+https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
 
 
 
@@ -111,6 +223,24 @@ K2.5出来后，被Cursor「致敬」，Cursor创始人公开称K2.5是其测评
 
 这不免让人想起电影《浪浪山小妖怪》里的剧情：小猪妖获得了父亲传下来的一个大招，可惜一辈子只能施展一次。
 
+
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
 
 
 
