@@ -11,12 +11,48 @@ GDP十强城市，又一轮大洗牌要来了
 上海、北京、深圳、重庆、广州、苏州、成都、杭州、武汉、南京位居前十。这几乎囊括了我国东部沿海和内陆区域中心强市，代表着我国城市经济发展的“天花板”。
 
 总量来看，前三季度，上海、北京双双跨过4万亿元大关，深圳首次站上3万亿元台阶，沪深京三城增量合计近7000亿元；增速上，除重庆外，九城跑赢全国4.6%的增速，深圳（6.0%）、广州（5.7%）领跑。
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
 
 拆解到分项数据，武汉规上工业增加值增速第一，其中高技术制造业猛增72.1%；外贸冠军是苏州，前三季度进出口增长51.9%，深圳以38.8%紧随其后。与此同时，南京、武汉、苏州、天津等城市固投承压，上海、北京、南京等6城社消零负增长。
 
 换句话说，中国头部城市，正处在动能换挡的关口。换挡之际，座次随之洗牌。广州追赶重庆，将差距缩小至861亿元，第四城之争悬念再起；杭州、武汉角逐第八城；第十城南京与宁波、天津贴身竞速。
 
 更值得注意的是，十强城市年初定下的全年目标基本都在5%—5.5%左右。站在三季度看全年，谁将有望率先过线？
+https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
 
 01
 今年前三季度，上海与北京GDP均闯过“4万亿”大关，分别为43306.62亿元、40468.4亿元。
@@ -28,6 +64,24 @@ GDP十强城市，又一轮大洗牌要来了
 高增速背后，很大程度上是外贸的强劲拉动。前三季度，深圳进出口总值达到46528.17亿元，同比增长38.8%，也将全市的外贸依存度拉高至153.8%。
 
 从全国来看，上海、北京、深圳三城不仅在经济体量上，更是在科技创新、高端服务等领域保持着不可撼动的江湖地位，构成中国城市的塔尖。
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
 
 而在它们之下，广州和重庆的竞争更显激烈——
 
@@ -36,6 +90,25 @@ GDP十强城市，又一轮大洗牌要来了
 从三产结构来看，前三季度，重庆二产增速仅为1.7%，规上工业增加值增速3.5%，在十强城市中排名靠后。服务业成为重庆经济增长最有力的支撑，三产增长5.8%，增速比一产、二产分别高出1.9、4.1个百分点，拉动GDP增长3.5个百分点。
 
 与之相比，前三季度，广州二产增速5.1%，规上工业增加值同比增长5.5%。具体来看，三大支柱产业中，汽车制造业增长5.4%、电子产品制造业增长10.7%、石油化工制造业增长5.3%。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+
 
 一直以来，作为广州第一大支柱产业，汽车稳，广州工业就稳。回看2021—2025年，广州汽车制造业增加值增速分别为4.4%、6.3%、1.6%、-18.2%、-1.6%，同期全市规上工业增加值增速分别为7.8%、0.8%、1.4%、-3.0%、1.2%。
 
@@ -51,6 +124,25 @@ GDP十强城市，又一轮大洗牌要来了
 与之相应的，杭州与武汉的角逐持续数年。特别是过去五年，两地位次几度交替——
 
 2021年杭州GDP领先武汉392亿元，到2022年，武汉GDP增速领跑十强城市，顺势反超杭州；2023年，杭州又以不足50亿元的优势再次反超；至2025年末，杭州、武汉GDP分别为23011亿元、22147.35亿元，相差863.65亿元。
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+
 
 今年前三季度，两地差距进一步扩大。前三季度，杭州、武汉GDP分别为18128亿元、16714.43亿元，同比分别增长5.2%、5.6%。但二者差距提升至1413.57亿元，相较去年末增加500余亿元。
 
@@ -69,6 +161,25 @@ GDP十强城市，又一轮大洗牌要来了
 杭州则是把现代服务锻造成主引擎。前三季度，杭州规上工业增加值3644亿元，同比增长6.9%。与此同时，服务业增加值达到13523亿元，同比增长5.3%，对经济增长贡献率达到75.8%。
 
 这种结构性趋势也向进出口传导。前三季度，杭州、武汉进出口增速分别为15.4%、22.3%，电子信息等领域的高技术产品均是重要驱动力。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
 
 但不可忽视的是投资端的下滑。前三季度，武汉固定资产投资增速同比下降9.8%，在目前公布这一数据的GDP前十城市中排名倒数第二。其中，房地产开发投资下降12.5%，基础设施投资下降13.7%，工业投资下降9.1%。
 
@@ -86,6 +197,25 @@ GDP十强城市，又一轮大洗牌要来了
 作为“冲十”的种子选手，宁波自2017年进入“万亿城市俱乐部”以来，已先后超越佛山、长沙、无锡、青岛、天津等多座城市，距离南京一度只剩下300余亿元。此前（2021年），宁波还提出，“奋力实现2025年GDP总量破2万亿元、进入全国前10名。”
 
 但2025年宁波与南京的差距重新拉大——2021年至2024年，宁波GDP增速分别为8.2%、3.5%、5.5%、5.4%，均快于南京，2025年受房地产拖累固定资产投资大幅下滑，叠加外贸增长放缓，导致GDP增速低于南京0.3个百分点，二者的差距重新拉大至700余亿元。
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
 
 “宁波的差距，本质是‘强制造、弱综合’与‘科教、服务、总部’多轮驱动之间的差距。”宋向清认为，宁波依靠港口、石化、高端装备、外贸制造持续追赶，优势集中在工业与进出口，产业链偏重于生产、加工、出口，高附加值的研发、总部结算、科技服务、文化消费等环节相对薄弱，经济容易受海外需求、大宗商品价格波动影响。
 
