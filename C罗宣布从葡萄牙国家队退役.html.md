@@ -7,7 +7,26 @@
 当地时间11月5日，葡萄牙球星克里斯蒂亚诺·罗纳尔多通过社交媒体宣布，他正式从葡萄牙国家足球队退役，结束长达23年的国家队生涯。
 
 C罗在社交媒体上发布了一段视频，宣布了自己的这一决定。他表示：“葡萄牙永远在我心中，过去23年里，我始终在捍卫这件球衣的荣耀，而这一天起，是时候将它传承给未来了。”
+https://www.bigou.cc
 
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+
+  
 C罗告别信
 
 致葡萄牙同胞们：
@@ -15,28 +34,140 @@ C罗告别信
 到了该交还国家队7号球衣的时候了。我从来没觉得这件球衣只属于我一个人。但在这23年里，我有幸穿上它，也肩负着捍卫它的责任，穿着它走进世界各地的球场。今天，是时候把它交给后来的人了。
 
 这不是一个容易的决定。有些决定，光靠理智做不了，也要听从自己的内心。这段始于2003年8月、永远改变了我人生的旅程，走到了终点。
+https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+
 
 回想在国家队经历的一切，浮现在我眼前的，有比赛、进球、纪录和奖杯，更有一个个鲜活的人。我看见那些生活在海外的葡萄牙人，在90分钟里感觉离家乡近了一点。我看见数百万素未谋面的葡萄牙同胞，他们却成了我生命的一部分。说到底，足球远远超出了一场比赛。足球的核心是人。
 
 在国家队的这些年里，我一直逼着自己突破极限。我想赢，想变得更好，想创造历史。我总是对自己提出最高的要求，总想做得更多，也始终相信我们能走得更远。我为这件球衣付出了自己的一切。
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
 
 有过完美的下午和夜晚，有过我永远不会忘记的胜利，也有些失利，如今回想起来依然令人心痛。我犯过错，也经历过痛苦。有些时候，我没能给葡萄牙人民带来他们如此渴望的东西。但我从未放弃。最重要的是，能代表葡萄牙，我一直深感自豪。
 
 这些年，我明白了几件很简单的事。进球会被淡忘，奖杯最终会被摆进博物馆，纪录终有一天会被打破。但时间永远抹不去我们在人们心里留下的位置。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+
 
 如果我曾给你们带来快乐，如果我的某个进球曾让你们拥抱身边的人、忘掉一件烦心事，或是为自己的国家感到骄傲，那这一切就都值得。身为葡萄牙人，这也是我们共同的经历。我们一起承受痛苦，一起重新站起来，再一次选择相信。
 
 葡萄牙永远需要敢于做梦的年轻人，需要永不放弃的球员，也需要一代又一代相信自己能走到前人从未到过的地方的人。一个不断涌现新英雄的国家，始终心怀信念。
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
 
 我想对队友们特别说几句。谢谢你们的每一次奔跑、每一次拥抱、每一次争论，也谢谢你们陪我度过踏上球场前每一刻的沉默。谢谢我们一起庆祝过的每一场胜利，也谢谢让我们变得更强的每一场失利。我有幸当过你们的队长，但没有哪位队长能独自走完这段路。你们永远是我故事的一部分。
 
 也谢谢所有教练、管理人员、队医、理疗师、球衣装备管理员、工作人员，以及这些年来与我并肩工作的每一个人。你们中的许多人从未出现在照片里，但如果没有你们，那些照片一张也不会有。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
 
 谢谢我的家人，和我一起追逐这个梦想。谢谢你们理解我的缺席、那些牺牲，也谢谢你们理解，有些时候，国家队不得不占去我生命里本也属于你们的一部分。我能走到今天，是因为我们始终牵着手一起走。
 
 还有葡萄牙的同胞们，无论你们身在世界何处，最后我还有一件事想告诉你们。有一个画面，我会永远记得。国歌响起时，我环顾四周，看见我的队友，看见看台，看见孩子、母亲、父亲和祖辈，也看见那些只为来到现场而不远千里赶来的葡萄牙人。
 
-那几分钟里，我们之间的一切差异都消失了。没有俱乐部之分，没有颜色之别，也不分职业和观点。那一刻，我们只为同一个名字热血沸腾。葡萄牙。这份感受，我会铭记一生。
+那几分钟里，我们之间的一切差异都消失了。没有俱乐部之分，没有颜色之别，也不分职业和观点。那一刻，我们只为同一个名字热血沸腾。葡萄牙。这份感受，我会铭记一生。https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
 
 今天，我在国家队的球场征程结束了。我昂首离开，为自己走过的路感到自豪，也知道自己已经为葡萄牙付出了一切。我永远是你们中的一员。我还会为葡萄牙揪心、为葡萄牙呐喊，用一声“Siuuuuu！”庆祝葡萄牙的每一场胜利。
 
