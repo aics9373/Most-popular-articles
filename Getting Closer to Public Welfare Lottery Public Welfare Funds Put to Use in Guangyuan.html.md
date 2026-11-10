@@ -1,30 +1,160 @@
 彩票公益金、广元、古柏保护、全民健身、红色遗址、公益金落地
 
 导语： 彩票公益金去了哪里？2026年10月，国家体育总局体彩中心组织“走近公益——彩票公益金媒体采风活动”走进四川广元，实地察看中央专项彩票公益金在全民健身设施、古树名木保护、红色遗址修缮等领域的落地成效。从嘉陵江畔的体育公园到翠云廊的千年古柏，从桥下空间的口袋球场到红坪村的苏维埃旧址，彩票公益金正在以可触可感的方式重塑蜀道百姓的日常生活。
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
 
 一、澳源体育中心：130万人次的免费与低收费开放
 
 广元澳源体育中心广场上，广场舞爱好者正在排练。广元市社会体育指导中心主任周继斌介绍，这里每年接待健身群众130余万人次，覆盖城区60万群众，既承接大型赛事，也对普通市民免费、低收费开放。2026年，中央投入302万元、省级投入143万元，2025年广元市本级体彩公益金投入70万元，全部用于场馆水电气能耗、日常维修、设施更新等运行保障。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
 
 市民王晓莉是“农业拽妈妈”舞蹈团团长，她的感触具体而微：“以前只能在露天广场、桥洞下排练，刮风下雨就得停。现在场馆可以免费使用，冬天不冷夏天不晒，我们有时候编排节目一直到晚上才回家。”72岁的门球爱好者崔虎林每天坐四站公交来打球，他说：“多亏有这样的免费场地，我们一帮退休老人有了落脚消遣的地方。”
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+
 
 这些场景的支撑者，是体彩公益金对公共体育场馆运行保障的持续投入。场馆免费或低收费开放并非一句口号，其背后是能耗、维修、人工等刚性支出的真金白银。彩票公益金在这里扮演的角色，是让“公益”二字从抽象概念转化为夏天的一缕凉风、冬天的一室暖意。
 
 二、盘龙空港体育公园与桥下口袋公园：边角地的再生
 
-盘龙空港体育公园建在起伏坡地之上，总投资750万元，其中500万元为中央专项彩票公益金，搭配250万元经开区配套资金。这片曾经杂草丛生的荒坡，如今是篮乒羽场馆、五人制足球场、儿童游乐与健身步道于一体的综合性公园，惠及周边3万余名群众，开园至今已举办“村BA”、七彩盘龙运动会等三十余场活动。
+盘龙空港体育公园建在起伏坡地之上，总投资750万元，其中500万元为中央专项彩票公益金，搭配250万元经开区配套资金。这片曾经杂草丛生的荒坡，如今是篮乒羽场馆、五人制足球场、儿童游乐与健身步道于一体的综合性公园，惠及周边3万余名群众，开园至今已举办“村BA”、七彩盘龙运动会等三十余场活动。https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+
 
 更具样本意义的是利州西路高架桥下的八一社区口袋体育公园。项目总投资75万元，其中50万元中央专项彩票公益金用于篮球场、乒乓球台、儿童沙坑、“悦读空间”、便民售卖亭主体建设。桥下空间曾是城市治理的灰色地带——杂草丛生、杂物乱堆，如今老人纳凉聊天、年轻人打球、小孩玩耍，各有去处。这种以极小投入激活城市边角地的模式，为土地资源紧张的老城区提供了可复制的公共空间供给方案。
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
 
 三、翠云廊古柏：6126万元守护千年绿色遗产
 
 从广元城区向西，剑门蜀道翠云廊的古柏群是另一类公益金受益者。剑阁全县拥有古树12606株，古柏占11996株，翠云廊沿线古柏平均树龄1050年，最高树龄达2300年。剑阁县翠云廊古柏保护中心副主任姚建洪介绍，近三年来，中央专项彩票公益金支持地方社会公益事业发展——蜀道翠云廊古柏保护利用项目（剑阁段）投入资金累计6126万元，这是国内首次大规模将该类彩票公益金用于古树名木保护。
+https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
 
 项目坚持“一树一策”原则，累计复壮救护濒危、衰弱古柏2391株，实现884株在库濒危古柏救护全覆盖。千年古柏的养护是极其专业的工程，涉及土壤改良、树洞修补、支撑加固、病虫害防治等多个技术环节，资金缺口长期存在。彩票公益金的介入，使这项无法通过市场化方式解决的保护工作获得了稳定的资金来源。
 
 四、红坪村苏维埃旧址：300万元激活红色研学与乡村经济
 
 广元城区向北40公里，盘山公路蜿蜒进入红坪村。红坪县苏维埃旧址历经修缮，焕然一新。水磨沟镇党委委员徐小婷介绍，展陈提升项目申请中央专项彩票公益金300万元，专项投入旧址保护修缮和复原布展，项目同步修缮周边道路、整治人居环境，年均接待研学游客1万余人次。
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+
 
 红坪村党总支书记李保江说，研学大巴一辆接着一辆开进村里，项目不仅带动农家乐、土特产销售，建设阶段村民就近务工日收入80至120元。目前村里还注册了专属商标，通过直播带货把天麻、蜂蜜、花生卖到全国各地。村民吴顺华参与了木构件修整、墙体修补，他说：“在家门口干活挣钱，守护家乡的红色记忆，打心底感激这笔公益金。”
 
