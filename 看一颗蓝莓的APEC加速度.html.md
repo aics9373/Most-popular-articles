@@ -9,6 +9,26 @@
 “十五五”规划纲要明确提出，“扩大高水平对外开放，开创合作共赢新局面”。今天（10日），第九届中国国际进口博览会在上海闭幕。不少参展企业结束上海的行程后，还将奔赴深圳参加APEC相关活动。从黄浦江畔到南海之滨，一场开放合作的接力正在进行。
 
 总台央视记者 田琪永：今年进博会哪里人气最旺，一定是农食产品展区。展台从一大早就开始排起了长队，大家正在试吃他们的明星产品——来自秘鲁的香蕉和蓝莓。
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+https://www.jfweb.cn
+
 
 图片
 
@@ -19,6 +39,26 @@
 现场观众：蓝莓是健康食品，对血管好，所以会经常吃。
 
 秘鲁与中国相隔万里。一颗颗娇嫩的蓝莓，漂洋过海来到上海，为什么还能这么新鲜？秘诀之一，就在进博会开幕前——这个月初，中国—秘鲁自贸协定升级议定书正式生效，这些水果通关更快、更方便。
+https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+https://www.yuehaidl.com
+
 
 图片
 
@@ -29,6 +69,27 @@
 图片
 
 这颗蓝莓脚下的路，还要从两年前的利马APEC会议说起。会议期间，钱凯港开港，让秘鲁农产品进入中国的航程缩短了十天以上。路通了，把蓝莓带进中国的这家企业，今年干脆把新的分公司设在了深圳。
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+https://www.peixun8.cc
+
+
 
 图片
 
@@ -37,16 +98,79 @@
 图片
 
 佳农水果集团广东公司总经理 李凯彬：以前华南的消费者吃到秘鲁蓝莓，只能从上海运过来，时效性远远达不到整个华南市场的需求。在深圳设立分公司之后，可以直接缩短配送距离，给消费者带来更好的消费体验。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+https://www.sgdj.net
+
+
 
 图片
 
 深圳的开放，让这颗蓝莓跑得更快了。一年，销量翻倍，最远卖到了新疆。未来还会通过港珠澳大桥、深中通道，卖到香港、澳门。明年，企业在秘鲁的采购量还要倍增。
 
 从“四叶草”的展台，到深圳的落地，一颗蓝莓，见证着中国越来越快的开放脚步。“下一站，深圳”，也成了我们在进博会上采访时，时常听到的声音。
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+https://www.gyjk88.com
+
+
 
 图片
 
 俄罗斯出口中心驻中国总代表 尤金·巴诺夫：对我来说，进博会真是一个好机会，对接中国的商家、连锁超市和国企；在APEC，就可以对接高层领导，我保证咱们下次很快就见面。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
+
+https://www.izhuang8.com
 
 图片
 
@@ -55,6 +179,27 @@
 图片
 
 进博会国家展的展台，还有一个特殊身份：APEC成员经济体。截至目前，已经有超过400家境外企业和机构报名参加了即将在深圳举行的APEC工商领导人峰会。
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
+https://www.londunpremier.com
 
 图片
 
